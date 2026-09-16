@@ -1,16 +1,22 @@
-## Hi there 👋
+<div align="center">
+  <img width="700" height="536" alt="lefpin" src="https://github.com/user-attachments/assets/8d3e4d9f-b7b3-4c0f-8c30-931254564d1f" />
+</div>
 
-<!--
-**heroicleader/heroicleader** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+---
 
-Here are some ideas to get you started:
+$$\color{#d41616}{📌‎ ‎ ‎ ;;‎ ‎ 𝙥in‎ ‎ ‎ /‎ ‎ ‎ 𝙢aya‎ !!‎ ‎ ‎ ✦︎}$$   
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+$$\color{#98d416}{𝜗𝜚‎ ‎ ‎ n1‎ ‎ ‎ 𝙡eafpin‎ 𝙜lazer‎ <🍃📌3}$$ 
+
+$$\color{#d41616}{ᯓ‎ ⭐‎ 𝙝yperfeminine‎ ‎ ‎ .‎ ‎ ‎ 𝙨y𝙨}$$  
+
+<div align="center">
+  
+‎[atabook](leafpin.atabook.org)‎ ‎ |‎ ‎ [prns.cc](https://pronouns.cc/Leafpin)‎ ‎ |‎ ‎ [twt](x.com/pinfectionism)
+
+</div>
+
+$$\color{#98d416}{''‎ 𝙮ou‎ 𝙣eed‎ 𝙖‎ 𝙝eroic‎ 𝙡eader‎ 𝙡ike‎ 𝙢e!‎ ''}$$
+
+---
+
