@@ -1,5 +1,5 @@
 <div align="center">
-  <img width="700" height="536" alt="lefpin" src="https://github.com/user-attachments/assets/8d3e4d9f-b7b3-4c0f-8c30-931254564d1f" />
+  <img width="500" height="400" alt="lefpin" src="https://github.com/user-attachments/assets/8d3e4d9f-b7b3-4c0f-8c30-931254564d1f" />
 </div>
 
 ---
