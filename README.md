@@ -20,3 +20,6 @@ $$\color{#98d416}{''‎ 𝙮ou‎ 𝙣eed‎ 𝙖‎ 𝙝eroic‎ 𝙡eader‎ �
 
 ---
 
+<div align="center">
+  <img width="300" height="40" alt="Lesbian" src="https://github.com/user-attachments/assets/02cbe8f6-972b-4b34-81b7-d63a7c4cf272" />
+</div>
